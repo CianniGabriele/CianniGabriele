@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **ciannigabriele@outlook.it**
 
-- ⚡ Master's student in computer engineering
+- ⚡ Master's student in computer science engineering
   
 <img src="https://media.giphy.com/media/mcsPU3SkKrYDdW3aAU/giphy.gif" />
 
